@@ -6,7 +6,5 @@
 
 
 You can reach out to me via 
-
-email: mhm_yang@proton.me 
-
-ig: @mo.pkg or @siiu.art
+>email: mhm_yang@proton.me 
+>ig: @mo.pkg or @siiu.art
